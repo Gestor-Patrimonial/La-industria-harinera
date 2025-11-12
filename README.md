@@ -1,1 +1,2 @@
 # La-industria-harinera
+Ninguna de ellas ha logrado dentro del período que consideramos un volumen mayor que la harinera. Es presumible, y lo hemos expresado más arriba, que esta industria existía en un estado apropiado al nivel técnico de cada región en proximidad de todas las masas de población que contenía el país. El censo de 1895 había localizado 659 establecimientos molineros, cuya producción anual era de 337 mil toneladas de harina. 
